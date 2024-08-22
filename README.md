@@ -5,5 +5,5 @@ baka's osu! skins. creat by myself
 ![](https://imgur.com/sQNVl1w.png)
 
 # [rafis 2018](https://drive.google.com/file/d/1uZTYwhtq-rcbt1OtXoDWXeODEmQvAEPA/view?usp=drive_link)
-![](https://imgur.com/undefined.png)
+![](https://imgur.com/TE9aluq.png)
 
